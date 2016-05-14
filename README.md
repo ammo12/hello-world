@@ -1,2 +1,2 @@
 # hello-world
-first repository
+livin in the trap hause
